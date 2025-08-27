@@ -10,4 +10,4 @@
 
 ⠀
 
-[rent](https://rentry.co/itamio) ⠀ ⠀ ⠀ ⠀[crrd](https://ltamio.carrd.co) ⠀ ⠀ ⠀ ⠀[strw](https://ltamlo.straw.page)⠀  ⠀⠀  ⠀[ata](https://ltamio.atabook.org/)
+[rent](https://rentry.co/1tensiq) ⠀ ⠀ ⠀ ⠀[crrd](https://1tensiq.carrd.co) ⠀ ⠀ ⠀ ⠀[strw](https://1tensiq.straw.page)⠀  ⠀⠀  ⠀[ata](https://1tensiq.atabook.org/)
