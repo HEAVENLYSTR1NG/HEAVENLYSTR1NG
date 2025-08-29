@@ -5,7 +5,7 @@
 
 
   
-<img width="350" height="350" alt="IMG_8147" src="https://github.com/user-attachments/assets/d6837015-c7fc-44a8-b30d-9ad9e1d348eb" />
+<img width="500" height="500" alt="IMG_8191" src="https://github.com/user-attachments/assets/c4699e31-9a80-4011-b9f3-ffbde9d00f38" />
 
 
 ⠀
