@@ -5,14 +5,13 @@
 
 
   
-<img width="500" height="500" alt="IMG_8191" src="https://github.com/user-attachments/assets/9cd52d23-18c2-46dc-af08-e78f675db4b7" />
+<img width="500" height="500" alt="IMG_8191" src="https://github.com/user-attachments/assets/80489f78-f4b3-45d1-a300-e451fa9cda8a" />
 
 ⠀ ⠀ ⠀ 
 ⠀ ⠀ ⠀ 
 ⠀ ⠀ ⠀ 
 ⠀ ⠀ ⠀ 
 
-Yeah，⠀ ⠀ I⠀ ⠀ Can
+yes⠀ ⠀ of⠀ ⠀ course⠀ ⠀ i⠀ ⠀ will
 
-
-Even⠀ ⠀ If⠀ ⠀ No⠀ ⠀ one⠀ ⠀ Else⠀ ⠀ Can
+my⠀ ⠀ darling
