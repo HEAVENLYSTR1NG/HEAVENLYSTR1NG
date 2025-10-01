@@ -5,6 +5,9 @@
 
 ⠀ ⠀ ⠀ 
 ⠀ ⠀ ⠀ 
+
+<img width="500" height="500" alt="IMG_9676" src="https://github.com/user-attachments/assets/20ac4434-7e60-47ae-a4e6-ac30294e6e33" />
+
 ⠀ ⠀ ⠀ 
 ⠀ ⠀ ⠀ 
 
@@ -21,8 +24,13 @@ c<ins>ou</ins>**ld**⠀ ⠀ <ins>**kill**</ins>⠀ ⠀ f**or**⠀ ⠀ ***m*** e�
 ⠀ ⠀ ⠀ 
 ⠀ ⠀ ⠀ 
 ⠀ ⠀ ⠀ 
-⠀ ⠀ ⠀ 
 
 **ye**<ins>s</ins>⠀ ⠀ **of**⠀ ⠀ **c**<ins>our</ins>s **e**⠀ ⠀ **i**⠀ ⠀ **wi**<ins>ll</ins>
 
 **my**⠀ ⠀ da<ins>**rling**</ins>
+
+
+⠀ ⠀ ⠀ 
+⠀ ⠀ ⠀ 
+
+<img width="500" height="500" alt="IMG_9676" src="https://github.com/user-attachments/assets/20ac4434-7e60-47ae-a4e6-ac30294e6e33" />
