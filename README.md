@@ -5,7 +5,7 @@
 <img width="500" height="500" alt="IMG_9676" src="https://github.com/user-attachments/assets/20ac4434-7e60-47ae-a4e6-ac30294e6e33" />
  
 
-![](https://komarev.com/ghpvc/?username=ryvnq&label=visitors&color=lightgrey)
+![](https://komarev.com/ghpvc/?username=ryvnq&label=visitors&color=68758c)
 
 
 <ins>d</ins>o⠀ ⠀ ***y*** **ou**⠀ ⠀ t<ins>hin</ins>k⠀ ⠀ **y**<ins>ou</ins>
