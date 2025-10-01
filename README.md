@@ -1,17 +1,28 @@
 <div align="center">
 
 
-
-
-
-  
-<img width="500" height="500" alt="IMG_8191" src="https://github.com/user-attachments/assets/80489f78-f4b3-45d1-a300-e451fa9cda8a" />
+![](https://komarev.com/ghpvc/?username=ryvnq&label=visitors&color=lightgrey)
 
 ⠀ ⠀ ⠀ 
 ⠀ ⠀ ⠀ 
 ⠀ ⠀ ⠀ 
 ⠀ ⠀ ⠀ 
 
-yes⠀ ⠀ of⠀ ⠀ course⠀ ⠀ i⠀ ⠀ will
+<ins>d</ins>o⠀ ⠀ ***y*** **ou**⠀ ⠀ t<ins>hin</ins>k⠀ ⠀ **y**<ins>ou</ins>
 
-my⠀ ⠀ darling
+c<ins>ou</ins>**ld**⠀ ⠀ <ins>**kill**</ins>⠀ ⠀ f**or**⠀ ⠀ ***m*** e⠀ ⠀ <ins>on</ins>e⠀ ⠀ **day**
+
+⠀ ⠀ ⠀ 
+⠀ ⠀ ⠀ 
+⠀ ⠀ ⠀ 
+
+<img width="500" height="500" alt="IMG_8191" src="https://github.com/user-attachments/assets/ffc92281-9014-4a52-af10-ed063854c432" />
+
+⠀ ⠀ ⠀ 
+⠀ ⠀ ⠀ 
+⠀ ⠀ ⠀ 
+⠀ ⠀ ⠀ 
+
+**ye**<ins>s</ins>⠀ ⠀ **of**⠀ ⠀ **c**<ins>our</ins>s **e**⠀ ⠀ **i**⠀ ⠀ **wi**<ins>ll</ins>
+
+**my**⠀ ⠀ da<ins>**rling**</ins>
