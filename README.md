@@ -8,7 +8,7 @@
 ⠀ ⠀ ⠀ 
 ⠀ ⠀ ⠀ 
 
-![](https://komarev.com/ghpvc/?username=ryvnq&label=visitors&color=68758c)
+![](https://komarev.com/ghpvc/?username=ryvnq&label=⟢inertians&color=68758c)
 
 
 <ins>d</ins>**o**⠀ ⠀ ***y*** **ou**⠀ ⠀ t[<ins>hin</ins>](xn--joinmeindeath-2t9ieccf.xn--6ii)k⠀ ⠀ **y**<ins>ou</ins>
