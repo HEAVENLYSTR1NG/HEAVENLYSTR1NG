@@ -11,9 +11,9 @@
 ![](https://komarev.com/ghpvc/?username=ryvnq&label=visitors&color=68758c)
 
 
-<ins>d</ins>o⠀ ⠀ ***y*** **ou**⠀ ⠀ t<ins>hin</ins>k⠀ ⠀ **y**<ins>ou</ins>
+<ins>d</ins>**o**⠀ ⠀ ***y*** **ou**⠀ ⠀ t[<ins>hin</ins>](xn--joinmeindeath-2t9ieccf.xn--6ii)k⠀ ⠀ **y**<ins>ou</ins>
 
-c<ins>ou</ins>**ld**⠀ ⠀ <ins>**kill**</ins>⠀ ⠀ f**or**⠀ ⠀ ***m*** e⠀ ⠀ <ins>on</ins>e⠀ ⠀ **day**
+c<ins>ou</ins>**ld**⠀ ⠀ [<ins>**kill**</ins>](xn--joinmeindeath-2t9ieccf.xn--6ii)⠀ ⠀ f**or**⠀ ⠀ ***m*** e⠀ ⠀ [<ins>on</ins>](xn--joinmeindeath-2t9ieccf.xn--6ii)e⠀ ⠀ **day**
 
 ⠀ ⠀ ⠀ 
 ⠀ ⠀ ⠀ 
@@ -25,9 +25,9 @@ c<ins>ou</ins>**ld**⠀ ⠀ <ins>**kill**</ins>⠀ ⠀ f**or**⠀ ⠀ ***m*** e�
 ⠀ ⠀ ⠀ 
 ⠀ ⠀ ⠀ 
 
-**ye**<ins>s</ins>⠀ ⠀ **of**⠀ ⠀ **c**<ins>our</ins>s **e**⠀ ⠀ **i**⠀ ⠀ **wi**<ins>ll</ins>
+**y**[**e**<ins>s</ins>](xn--joinmeindeath-2t9ieccf.xn--6ii)⠀ ⠀ **of**⠀ ⠀ **c**[<ins>our</ins>](xn--joinmeindeath-2t9ieccf.xn--6ii)s **e**⠀ ⠀ **i**⠀ ⠀ **wi**<ins>ll</ins>
 
-**my**⠀ ⠀ da<ins>**rling**</ins>
+**my**⠀ ⠀ da[<ins>**rling**</ins>](xn--joinmeindeath-2t9ieccf.xn--6ii)
 
 
 ⠀ ⠀ ⠀ 
