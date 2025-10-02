@@ -19,7 +19,7 @@ c<ins>ou</ins>**ld**⠀ ⠀ [<ins>**kill**</ins>](xn--joinmeindeath-2t9ieccf.xn-
 ⠀ ⠀ ⠀ 
 ⠀ ⠀ ⠀ 
 
-<img width="500" height="500" alt="IMG_8191" src="https://github.com/user-attachments/assets/ffc92281-9014-4a52-af10-ed063854c432" />
+![IMG_9675](https://github.com/user-attachments/assets/351493fc-421e-4161-a83e-b01c1f627f0c)
 
 ⠀ ⠀ ⠀ 
 ⠀ ⠀ ⠀ 
