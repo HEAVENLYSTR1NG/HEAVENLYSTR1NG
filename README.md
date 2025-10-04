@@ -1,13 +1,14 @@
 <div align="center">
 
+⠀ ⠀ ⠀ 
 
-![](https://komarev.com/ghpvc/?username=ryvnq&label=⟢inertians&color=68758c)
+![](https://komarev.com/ghpvc/?username=ryvnq&label=⟢inertians&color=lightgrey)
 
 ⠀ ⠀ ⠀ 
 ⠀ ⠀ ⠀ 
 
 
-![IMG_9755](https://github.com/user-attachments/assets/02072fb2-aed9-4822-87bb-075d2b067185)
+<img width="605" height="413" alt="IMG_9807" src="https://github.com/user-attachments/assets/e8f7295b-ce65-4802-a857-5cf05d38b9bf" />
 
 ⠀ ⠀ ⠀ 
 ⠀ ⠀ ⠀ 
