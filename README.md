@@ -2,7 +2,7 @@
 
 ⠀ ⠀ ⠀ 
 
-![](https://komarev.com/ghpvc/?username=ryvnq&label=⟢inertians&color=lightgrey)
+![](https://komarev.com/ghpvc/?username=ryvnq&label=⟢TrustValue&color=lightgrey)
 
 ⠀ ⠀ ⠀ 
 ⠀ ⠀ ⠀ 
